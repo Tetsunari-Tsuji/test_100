@@ -1,2 +1,4 @@
 # test_100
-ГNГКГКГУ
+уВпуГкуГкуГ│
+уГдуГауГБуГг
+yamuchaaaaaaaaaaaaaaaaaaaaaaaa
